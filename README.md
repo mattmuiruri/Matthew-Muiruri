@@ -80,7 +80,7 @@ My focus is on building secure, efficient, and scalable systems — bridging day
 
 ### 🌐 **Let’s Connect**
 - 📫 Email: [mmuiruri2003@gmail.com](mailto:mmuiruri2003@gmail.com)  
-- 💼 LinkedIn: [linkedin.com/in/matthewmuiruri](750218284)   
+- 💼 LinkedIn: [linkedin.com/in/matthew-muiruri](750218284)   
 
 ---
 
